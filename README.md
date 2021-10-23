@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Ayush Singh
+-I am a second year B.Tech Computer Science student at Birla Institute of Technology Mesra.
+-How to reach me?
+-Here are my handles
+-Mail-ayushsnh711@gmail.com
+-Instagram-ayu_shh7
